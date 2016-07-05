@@ -6,4 +6,7 @@
 
 VFNEVi00MTQ1OA==
 
+<img src="http://i.imgur.com/zBAhnZW.gif">
+
+RUJPRC0yMDM=
 
